@@ -2,4 +2,4 @@
 
 ## Why ?
 
-Because awesome.
+Because you seck.
